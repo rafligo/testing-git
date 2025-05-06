@@ -1,3 +1,3 @@
 rafliii    billy gay
 sipit
-rivo
+rivo lgbtq+
